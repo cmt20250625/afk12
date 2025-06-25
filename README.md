@@ -33,7 +33,7 @@
 
 点击访问：<a href="https://hl108.pages.dev/">今日黑料独家爆料</a>
 
-点击访问：<a href="hhttps://hl106.pages.dev/">黑料社91看片</a>
+点击访问：<a href="https://hl106.pages.dev/">黑料社91看片</a>
 
 点击访问：<a href="https://hj-10.pages.dev/">海角社區官網在线入口</a>
 
@@ -63,4 +63,4 @@ Telegram频道传送门：想找好看的Telegram频道？《黑料大事记》�
 
 黑料大事记详细梳理娱乐圈与网红界的重要爆料事件，从爆发到发酵，时间线清晰，内容真实。它不仅记录每一次舆论风暴的起点，也让吃瓜群众轻松回顾往年大瓜，是了解圈内内幕的绝佳工具。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/cmt20250625/afk12）</span>
